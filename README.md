@@ -7,4 +7,4 @@ https://github.com/running-man25/vpn-fanqiang/wiki
 
 安卓手机 apk 下载安装 
 
-供大家学习工作用 !
+供大家工作学习用 !
